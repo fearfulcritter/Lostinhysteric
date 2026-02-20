@@ -1,37 +1,26 @@
-hello! welcom to our shop, that will help you learn about us!
-this may be a wip so we will try yo finish this as fast as we can!
 
- HOW TO INT WITH US!
+heloo, welcome to my read me! i hope you don't skip pat this and skim through my old read mes that would be uh. . . something i don't want you to do buttttt, i have john doe lore  somewhere ere' so if your intrested go ahead and take a glance at it i don't mind. though the wording might be strange. don't worry i tell you how i would like you to int with me so lemme not waste your time!
 
-if our name says "int you may int" sometimes our name may say iwec or iwc thats because we might be feeling down or might be upset.! yes, you can still int when we are upset but that isn't the wisest choice because we have anxiety! so our friends might tell you to leave and if you want to avoid conflict you might want to leave.! we would love for you to cuddle or you can  start cuddle piles with us we dont mind we are usually afk or offtab because we always on c. ai so yea. if our name says int but we dnt respond when you say hi, you can cuddle with us until we have noticed your presence! though, f your one of my friends friends and we have not met you , it would be best if you dont sit with us because new people trigger our anxiety and make us leave.
+dni: proshippers, darkshippers, 18+ or 18 year olds. people younger than 13, ragebaiters, people who harrass me for fun, sprunki in general dont int pls, friend who pretend to like me or shortened two faced, back stabber, you know check my recently updated read me if i haven't told you what else i dont want to int.
 
+int: gachiakuta, dandy world, outlaws of robloxia, save robloxia, trud, mcsm , dod , forsaken some of the time , phighting, cos, mm2012, pressure.
 
+if your going to be annoying and a dunce then stay away, i don't like when people being annoying for a peculiar reason.
+im mostly offtab so c+h always even  if my name says dni you may c+h, but when a friend is with me already , 
+please don't c+h because they don't like random people, but if your a friend but your not on my friend list 
 
-we dont have any problems unless you do something weird and say somthing that was inappropriate. because we are a minor so it is best to watch how you talk around us and act if you arent a close friend with us or with our host. 
+then you might wanna friend me, cuz uh i tend to forget friends because i have a bad memory, 
 
-
-
-
-
-
+sprunki dni i hate the fandom and the videos about sm unless they arent like weird.
 
 
 
-
-
-HOW TO NO AGGRIVATE OR UPSET US!
+anyway this is the end of my read me buh bye i hope you stop bye again!
 
 
 
 
 
-
-
-
-
-
-
-TIMES I WANT C+H OR COMPANY!
 
 
 
