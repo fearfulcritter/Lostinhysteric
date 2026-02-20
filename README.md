@@ -14,7 +14,10 @@ then you might wanna friend me, cuz uh i tend to forget friends because i have a
 sprunki dni i hate the fandom and the videos about sm unless they arent like weird.
 ![Your descriptive alt text](path/to/your/animation.gif)
 
+you may kiss me if your a friend or your admiring skin
 
+i enjoy bfdi and osc sm its not funny i just don't make many of the ponys so mb!
+i dont like when randos boop me so please don't boop
 
 anyway this is the end of my read me buh bye i hope you stop bye again!
 
