@@ -1,5 +1,5 @@
 
-heloo, welcome to my read me! i hope you don't skip pat this and skim through my old read mes that would be uh. . . something i don't want you to do buttttt, i have john doe lore  somewhere ere' so if your intrested go ahead and take a glance at it i don't mind. though the wording might be strange. don't worry i tell you how i would like you to int with me so lemme not waste your time!
+heloo, welcome to my read me! Im hysteria or sebbyz! i hope you don't skip past this and skim through my old read mes that would be uh. . . something i don't want you to do buttttt, i have john doe lore  somewhere ere' so if your intrested go ahead and take a glance at it i don't mind. though the wording might be strange. don't worry i tell you how i would like you to int with me so lemme not waste your time!
 
 dni: proshippers, darkshippers, 18+ or 18 year olds. people younger than 13, ragebaiters, people who harrass me for fun, sprunki in general dont int pls, friend who pretend to like me or shortened two faced, back stabber, you know check my recently updated read me if i haven't told you what else i dont want to int.
 
