@@ -2,7 +2,7 @@
 
 
 
-![picmix com_2663206](https://github.com/user-attachments/assets/f4e70de2-c46d-4653-80d8-f02e2e5c478f)
+
 
 
 
