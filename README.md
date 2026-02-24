@@ -2,11 +2,11 @@
 
 
 
+![picmix com_2663206](https://github.com/user-attachments/assets/f4e70de2-c46d-4653-80d8-f02e2e5c478f)
 
 
 
 
-https://www.tumblr.com/skeleton-bab/170553346800/day-4-of-bfdi-four-stop-bugging-him?source=share
 
 
 
@@ -14,18 +14,25 @@ https://www.tumblr.com/skeleton-bab/170553346800/day-4-of-bfdi-four-stop-bugging
 
 heloo, welcome to my read me! Im hysteria or sebbyz! i hope you don't skip past this and skim through my old read mes that would be uh. . . something i don't want you to do buttttt, i have john doe lore  somewhere ere' so if your intrested go ahead and take a glance at it i don't mind. though the wording might be strange. don't worry i tell you how i would like you to int with me so lemme not waste your time!
 
+
+
 dni: proshippers, darkshippers, 18+ or 18 year olds. people younger than 13, ragebaiters, people who harrass me for fun, sprunki in general dont int pls, friend who pretend to like me or shortened two faced, back stabber, you know check my recently updated read me if i haven't told you what else i dont want to int.
+
+
 
 int: gachiakuta, dandy world, outlaws of robloxia, save robloxia, trud, mcsm , dod , forsaken some of the time , phighting, cos, mm2012, pressure ,regretevator , bfdi, tpot, osc
 
+
 if your going to be annoying and a dunce then stay away, i don't like when people being annoying for a peculiar reason.
 im mostly offtab so c+h always even  if my name says dni you may c+h, but when a friend is with me already , 
+
 please don't c+h because they don't like random people, but if your a friend but your not on my friend list 
+i am oversenstive so please don't be rude to me.
 
 then you might wanna friend me, cuz uh i tend to forget friends because i have a bad memory, 
 
+
 sprunki dni i hate the fandom and the videos about sm unless they arent like weird.
-![Your descriptive alt text](path/to/your/animation.gif)
 
 you may kiss me if your a friend or your admiring skin
 
