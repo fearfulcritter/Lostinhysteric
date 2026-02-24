@@ -49,7 +49,7 @@ anyway this is the end of my read me buh bye i hope you stop bye again!
 
 this drawing is for @bluunny 
 
-
+its not finised though
 
 
 
