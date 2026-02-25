@@ -39,19 +39,11 @@ you may kiss me if your a friend or your admiring skin
 i enjoy bfdi and osc sm its not funny i just don't make many of the ponys so mb!
 i dont like when randos boop me so please don't boop
 
-anyway this is the end of my read me buh bye i hope you stop bye again!
-
-
-
-<img width="824" height="839" alt="Screenshot 2026-02-23 221949" src="https://github.com/user-attachments/assets/4897cc11-4daa-43eb-b977-542fd6ddc109" />
-
-
-this drawing is for @bluunny 
-
-its not finised though
+anyway this is the end of my read me buh bye i hope you stop bye aga
 
 
 
 
 
-will finish! soon.
+
+
