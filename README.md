@@ -13,12 +13,11 @@
 
 
 
-heloo, welcome to my read me! Im hysteria or sebbyz! i hope you don't skip past this and skim through my old read mes that would be uh. . . something i don't want you to do buttttt, i have john doe lore  somewhere ere' so if your intrested go ahead and take a glance at it i don't mind. though the wording might be strange. don't worry i tell you how i would like you to int with me so lemme not waste your time!
+ʜᴇʟᴏᴏ, ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ʀᴇᴀᴅ ᴍᴇ! ɪᴍ ʜʏꜱᴛᴇʀɪᴀ ᴏʀ ꜱᴇʙʙʏᴢ! ɪ ʜᴏᴘᴇ ʏᴏᴜ ᴅᴏɴ'ᴛ ꜱᴋɪᴘ ᴘᴀꜱᴛ ᴛʜɪꜱ ᴀɴᴅ ꜱᴋɪᴍ ᴛʜʀᴏᴜɢʜ ᴍʏ ᴏʟᴅ ʀᴇᴀᴅ ᴍᴇꜱ ᴛʜᴀᴛ ᴡᴏᴜʟᴅ ʙᴇ ᴜʜ. . . ꜱᴏᴍᴇᴛʜɪɴɢ ɪ ᴅᴏɴ'ᴛ ᴡᴀɴᴛ ʏᴏᴜ ᴛᴏ ᴅᴏ ʙᴜᴛᴛᴛᴛᴛ, ɪ ʜᴀᴠᴇ ᴊᴏʜɴ ᴅᴏᴇ ʟᴏʀᴇ  ꜱᴏᴍᴇᴡʜᴇʀᴇ ᴇʀᴇ' ꜱᴏ ɪꜰ ʏᴏᴜʀ ɪɴᴛʀᴇꜱᴛᴇᴅ ɢᴏ ᴀʜᴇᴀᴅ ᴀɴᴅ ᴛᴀᴋᴇ ᴀ ɢʟᴀɴᴄᴇ ᴀᴛ ɪᴛ ɪ ᴅᴏɴ'ᴛ ᴍɪɴᴅ. ᴛʜᴏᴜɢʜ ᴛʜᴇ ᴡᴏʀᴅɪɴɢ ᴍɪɢʜᴛ ʙᴇ ꜱᴛʀᴀɴɢᴇ. ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ɪ ᴛᴇʟʟ ʏᴏᴜ ʜᴏᴡ ɪ ᴡᴏᴜʟᴅ ʟɪᴋᴇ ʏᴏᴜ ᴛᴏ ɪɴᴛ ᴡɪᴛʜ ᴍᴇ ꜱᴏ ʟᴇᴍᴍᴇ ɴᴏᴛ ᴡᴀꜱᴛᴇ ʏᴏᴜʀ ᴛɪᴍᴇ!
 
-i love lampey and poob and other reg characters beside the rock and that HIDEOUS REDISH BUG HELP ME
+ɪ ʟᴏᴠᴇ ʟᴀᴍᴘᴇʏ ᴀɴᴅ ᴘᴏᴏʙ ᴀɴᴅ ᴏᴛʜᴇʀ ʀᴇɢ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ʙᴇꜱɪᴅᴇ ᴛʜᴇ ʀᴏᴄᴋ ᴀɴᴅ ᴛʜᴀᴛ ʜɪᴅᴇᴏᴜꜱ ʀᴇᴅɪꜱʜ ʙᴜɢ ʜᴇʟᴘ ᴍᴇ
 
-dni: proshippers, darkshippers, 18+ or 18 year olds. people younger than 13, ragebaiters, people who harrass me for fun, sprunki in general dont int pls, friend who pretend to like me or shortened two faced, back stabber, you know check my recently updated read me if i haven't told you what else i dont want to int.
-
+ᴅɴɪ: ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ, 18+ ᴏʀ 18 ʏᴇᴀʀ ᴏʟᴅꜱ. ᴘᴇᴏᴘʟᴇ ʏᴏᴜɴɢᴇʀ ᴛʜᴀɴ 13, ʀᴀɢᴇʙᴀɪᴛᴇʀꜱ, ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ʜᴀʀʀᴀꜱꜱ ᴍᴇ ꜰᴏʀ ꜰᴜɴ, ꜱᴘʀᴜɴᴋɪ ɪɴ ɢᴇɴᴇʀᴀʟ ᴅᴏɴᴛ ɪɴᴛ ᴘʟꜱ, ꜰʀɪᴇɴᴅ ᴡʜᴏ ᴘʀᴇᴛᴇɴᴅ ᴛᴏ ʟɪᴋᴇ ᴍᴇ ᴏʀ ꜱʜᴏʀᴛᴇɴᴇᴅ ᴛᴡᴏ ꜰᴀᴄᴇᴅ, ʙᴀᴄᴋ ꜱᴛᴀʙʙᴇʀ, ʏᴏᴜ ᴋɴᴏᴡ ᴄʜᴇᴄᴋ ᴍʏ ʀᴇᴄᴇɴᴛʟʏ ᴜᴘᴅᴀᴛᴇᴅ ʀᴇᴀᴅ ᴍᴇ ɪꜰ ɪ ʜᴀᴠᴇɴ'ᴛ ᴛᴏʟᴅ ʏᴏᴜ ᴡʜᴀᴛ ᴇʟꜱᴇ ɪ ᴅᴏɴᴛ ᴡᴀɴᴛ ᴛᴏ ɪɴᴛ.
 
 
 int: gachiakuta, dandy world, outlaws of robloxia, save robloxia, trud, mcsm , dod , forsaken some of the time , phighting, cos, mm2012, pressure ,regretevator , bfdi, tpot, osc
