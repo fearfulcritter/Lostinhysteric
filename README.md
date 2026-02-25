@@ -10,7 +10,6 @@
 
 
 
-![picmix com_2663206 (2)](https://github.com/user-attachments/assets/a706f9a2-d107-443a-b2a2-81de5234a303)
 
 
 
@@ -22,7 +21,7 @@
 
 
 int: gachiakuta, dandy world, outlaws of robloxia, save robloxia, trud, mcsm , dod , forsaken some of the time , phighting, cos, mm2012, pressure ,regretevator , bfdi, tpot, osc
-
+,seildirectory , sfawtde, crk i have more but i dont have time to insert them her so sorry!
 
 if your going to be annoying and a dunce then stay away, i don't like when people being annoying for a peculiar reason.
 im mostly offtab so c+h always even  if my name says dni you may c+h, but when a friend is with me already , 
